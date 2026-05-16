@@ -1,4 +1,4 @@
-
+exclusive Surfshark Extension | streaming-optimization + no-logs-policy offers the most advanced Surfshark extension, with streaming-optimization and no-logs-policy. Ideal for
 
 
 
